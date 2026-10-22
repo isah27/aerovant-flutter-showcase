@@ -1,0 +1,1 @@
+INSTRUCTION FROM ISAH (Oct 22, 1:42 PM WAT): Skip the narrated YouTube build video, preview, thumbnail and metadata for Day 4 and later days until he asks again. Deliver only the project and the LinkedIn showcase video. Remove the "Want the full walkthrough?" YouTube line from the post.
